@@ -1,4 +1,4 @@
-#  
+#  Enhance Notion for macOS with Notion for macOS rare Utility: goal tracking & multi-device sync, the #1 utility. Includes goal tracking and multi-device sync for a smoother
 
 
 
